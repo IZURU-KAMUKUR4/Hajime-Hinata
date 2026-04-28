@@ -2,7 +2,8 @@
 
 "Life's dull, looking pathetic. How can it be full? When everything is boring"
 
-<img width="200" height="200" alt="35373" src="https://github.com/user-attachments/assets/d8d52da6-6636-484c-a595-53daa6f1a78e" />
+<img width="1200" height="1663" alt="35382" src="https://github.com/user-attachments/assets/93b3aa58-5006-4717-9f16-ed966a9786cf" />
+
 
 " yes, we're the same person, different personality. "
 
